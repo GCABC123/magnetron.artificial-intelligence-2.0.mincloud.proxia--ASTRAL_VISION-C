@@ -73,6 +73,8 @@ FIND STICKERS HERE: https://bit.ly/3B8D3lE
 
 You must display the included stickers/signs (so that it is clearly visible) if you are working with MAGNETRON ™ TECHNOLOGY for the purposes of determining whether you want to purchase a technology license or not. This includes but is not limited to public technology displays, trade shows, technology expos, media appearances, Investor events, Computers (exterior), MINDCLOUD STORAGE (e.g server room doors, render farm room doors) etc.
 
+NOTE: THIS PROXIA CAN ALSO SEND INFORMATION TO ANOTHER ASTRAL BODY PROXIA i.e ROBOT BODY COORDINATION PROXIA (WHEN THE HUMANOID ROBOT MIMICS HUMAN BODY MOVEMENTS).
+
 
 
 
